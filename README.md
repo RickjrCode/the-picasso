@@ -1,1 +1,1 @@
-# the-picasso
+# the picasso painting
